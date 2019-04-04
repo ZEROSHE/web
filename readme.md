@@ -1,0 +1,2 @@
+- Web is only part-time
+- Binary is My-Full-time
